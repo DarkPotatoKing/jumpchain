@@ -29,3 +29,11 @@ Items:
 Flaws:
 - Cripled (+100) - I have telekinesis and acrobatic skills to compensate for this.
 - Silenced (+100) - I have telepathy I can use to communicate with people and pokemon so this should be manageable.
+
+I spend my 10 years here joining different Pokemon leagues, challenging Gyms, and training Pokemon. I don't aim for championships but I do my best to train my Pokemon. I catch a Ponyta which eventually evolves into a Rapidash which becomes my main mode of transportation on land. I catch a Wailmer and evolve it into a Wailord which becomes my main mode of transporatation on water (size matters, I can lie down comforably while Wailord ferries me along the water). 
+
+I catch a Machop which becomes a Machamp because it's nice to have a really buff guy around. I catch a Dratini and evolve it to a Dragonite which I ride on to fly (if I'm not using telekinesis to fly, though I don't know how comfortable riding a Dragonite would be). I catch an Abra and evolve it into Alakazam, I get to train Psionics with my Alakazam. Furthermore another psychic user and a teleporter would be very useful outside of battle. 
+
+Finally, I have my best friend Charmander who evolves into Charizard. I give a unique nickname to each of them. (OOC: I should decide what names they should have later on.) I go around and travel the world, meet new people, catch and train my Pokemon as well as my abilities. 
+
+At the end of ten years, I take the 6 Pokemon I mentioned above with me  to my next jump.
