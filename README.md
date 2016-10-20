@@ -13,7 +13,9 @@ Pokemon -> Fullmetal Alchemist
 (Note: The jump histories below is listed from newest to oldest)
 
 # Fullmetal Alchemist
-http://imgur.com/a/fq0qQ
+Link: http://imgur.com/a/fq0qQ
+
+Reddit comment: https://www.reddit.com/r/makeyourchoice/comments/4lny4k/fullmetal_alchemist_jumpchain/d90413r
 
 Location: Ishval (choosen, 100)
 
@@ -42,7 +44,7 @@ In terms of the story line, I'll stay away from it as much as possible. When the
 
 
 # Pokemon
-http://imgur.com/a/lp6Pp
+Link: http://imgur.com/a/lp6Pp
 
 Location: Sinnoh (rolled)
 
