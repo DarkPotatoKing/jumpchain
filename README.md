@@ -5,6 +5,42 @@ I lost my previous Jumpchain progress and I'm too lazy to backtrack my adventure
 
 [TODO: Explain Jumpchain rules]
 
+I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house supplements. For my next runs, I'll just assume that I have them but I won't deal much with the details
+
+# Jumps
+Pokemon -> Fullmetal Alchemist
+
+(Note: The jump histories below is listed from newest to oldest)
+
+# Fullmetal Alchemist
+http://imgur.com/a/fq0qQ
+
+Location: Ishval (choosen, 100)
+
+Age: 19 (rolled, 3+2+14)
+
+Gender: Male
+
+Background: Drop-In - This one is the best choice for me because of the Complications I'll take.
+
+Abilities:
+- Advanced Formulae (100) - I need this knowledge to headstart my quest for knowledge.
+- Humonculus: Envy (800) - His shapeshifting skills is essential for this jump. Shapeshifting is also a pretty versatile abilty. Weighing a ton means I'm as heavy as around 15 humans, so my punch would be able to deal a lot of force. Combine my weight with the natural strength and speed of a homunculus and that's pretty scary. Of course, my favorite part of being a humonculus is the durability, regeneration, and the ability to survive without food or sleep. These skills would be very useful in future runs since I'm pretty much self-sustaining when left alone.
+
+Items:
+- Red Stone (600) - Spoiler, this is actually an actual Philosopher's stone. Aside from the stone I also get knowledge on how to make the stone, though I'd rather not. With Advanced Formulae I would be able to perform powerful Alchemy even without the need of transmutation circles. Also, a backup stone in case I use up too much of my regeneration.
+
+Complications:
+- Tremor (+300) - Compensated since I have a stone so I don't have to draw circles to perform Alchemy. I can also fare well in combat even without Alchemy.
+- Enemy of the State (+300) - Compensated since I'm a Drop-in which means they have no previous records  of me. I also have a shapeshifting ability so it'll be really hard for the Military to track me. Since the only one after me is just the Military itself and not  the people behind the Military, I can probably fight them effortlessly aside from a few State Alchemist like Mustang.
+
+I'm hunted by the Military so what I'll do is constantly shapeshift between forms in order to elude them. I'll be starting at Ishval, but I have nothing to do there and I don't care about the people, so instead I'll travel immediately to Central. What I'll be doing here is to learn more about Alchemy while also having fun. I'll try out all the food in Amestris. I don't care about people so I'll rob and maybe kill some rich people in order to get money to spend on, or I can also steal whatever I want, whichever is more convenient. Of course I won't do it too much since I wouldn't want the Military to put their eyes too much on me.
+
+Aside from having fun, I  also want to learn more about Alchemy. I'll do this by going to libraries and going to famous alchemists to study Alchemy, with the help of shapeshifting so that I can get into places by disguising as high ranking officials or State Alchemists. I have perfect memory from my Pokemon jump, so if I can read a book just once it'll be stored in my memory and I'll be able to use the knowledge there anytime, I think this would speed up my learning of Alchemy by quite a lot.
+
+In terms of the story line, I'll stay away from it as much as possible. When the big event is about to happen, I'll move to Xing, then learn about Alkahestry and have fun similar to what I did in Amestris. I expect within 10 years I'll have several conflicts with the Military but nothing too much I can't handle. Thus, after 10 years I proceed to my next jump together with my Humonculus body, Philosopher stone, and a lot of knowledge about Alchemy and Alkahestry.
+
+
 # Pokemon
 http://imgur.com/a/lp6Pp
 
