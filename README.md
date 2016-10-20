@@ -7,8 +7,9 @@ I lost my previous Jumpchain progress and I'm too lazy to backtrack my adventure
 
 I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house supplements. For my next runs, I'll just assume that I have them but I won't deal much with the details
 
-# Jumps
-Pokemon -> Fullmetal Alchemist
+# Jumps (In chronological order)
+- Pokemon 
+- Fullmetal Alchemist
 
 (Note: The jump histories below is listed from newest to oldest)
 
