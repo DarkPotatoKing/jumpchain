@@ -10,7 +10,7 @@ I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house
 # Jumps (In chronological order)
 - [Pokemon](https://github.com/DarkPotatoKing/jumpchain#pokemon)
 - [Fullmetal Alchemist](https://github.com/DarkPotatoKing/jumpchain#fullmetal-alchemist)
-- Teen Titans
+- [Teen Titans] (https://github.com/DarkPotatoKing/jumpchain/#teen-titans)
 
 (Note: The jump histories below is listed from newest to oldest)
 
