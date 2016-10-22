@@ -10,13 +10,15 @@ I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house
 # Jumps (In chronological order)
 - [Pokemon](https://github.com/DarkPotatoKing/jumpchain#pokemon)
 - [Fullmetal Alchemist](https://github.com/DarkPotatoKing/jumpchain#fullmetal-alchemist)
+- Teen Titans
 
 (Note: The jump histories below is listed from newest to oldest)
 
-# Fullmetal Alchemist
-Link: http://imgur.com/a/fq0qQ
+# [Teen Titans](http://imgur.com/a/VHMOb)
 
-Reddit comment: https://www.reddit.com/r/makeyourchoice/comments/4lny4k/fullmetal_alchemist_jumpchain/d90413r
+# [Fullmetal Alchemist](http://imgur.com/a/fq0qQ)
+
+[Reddit comment](https://www.reddit.com/r/makeyourchoice/comments/4lny4k/fullmetal_alchemist_jumpchain/d90413r)
 
 Location: Ishval (choosen, 100)
 
@@ -44,8 +46,7 @@ Aside from having fun, I  also want to learn more about Alchemy. I'll do this by
 In terms of the story line, I'll stay away from it as much as possible. When the big event is about to happen, I'll move to Xing, then learn about Alkahestry and have fun similar to what I did in Amestris. I expect within 10 years I'll have several conflicts with the Military but nothing too much I can't handle. Thus, after 10 years I proceed to my next jump together with my Humonculus body, Philosopher stone, and a lot of knowledge about Alchemy and Alkahestry.
 
 
-# Pokemon
-Link: http://imgur.com/a/lp6Pp
+# [Pokemon](http://imgur.com/a/lp6Pp)
 
 Location: Sinnoh (rolled)
 
