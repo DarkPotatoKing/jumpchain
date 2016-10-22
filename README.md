@@ -16,6 +16,33 @@ I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house
 
 # [Teen Titans](http://imgur.com/a/VHMOb)
 
+Age: 14 (rolled)
+
+Gender: Male
+
+Species: Tamaranean (800) - It gives a pretty good set of powers for only 800 cp.
+
+History:  Athlete (100) - I want to get the discount for Super Speed.
+
+Location: Jump City
+
+Powers:
+- Starbolts - From now on this will be my main form of offense when I have to do massive damage.
+- Flight - I finally have a flight ability that allows me to fly up to the speed of sound, cool.
+- Superhuman Condition - Lifting up to 25 tons is nice, plus the all around stat improvement is great.
+- Omnilinguistic Assimilation - Might be useful some time.
+- Self-sustenance - As a humonculus I already pretty self-sustaining, but if I can't survive outer space  naked before then I definitely can now.
+- Environmental adaptation - More durability is never a bad thing.
+- Empathy (100) - Pretty useful ability for only 100 cp, for example I can sense when there is hostility nearby.
+- Super Speed (200) - Now I can also run at Mach 1, combine this with my Mach 1 flight plus the ability to process things even when going really fast then that gives me a nice combination of speed, agility, and control.
+- Teleportation (300) - I can create portals as well, this allows me to travel long distances without having to use my speed.
+
+Drawbacks:
+- Coveted (+200) - I can sense emotions and I can shapeshift because of my homunculus background. I'm also fast so it'll be to catch me if they find me. Worse comes to worst I can do some overpowered alchemy using my Philosopher's Stone to escape or kill whatever is after me.
+- Overheating (+300) - I'm an alchemist, converting the built up energy in my body into something more safe is trivial. So really this "Drawback" is more like a perk since I get more stored energy that is usable in a lot of way.
+
+I'll spend my 10 years just doing hero stuff. I'm not gonna go with the Teen Titans since I'm a lot more powerful than them and having me on their battles might change the outcome of the story drastically (for bettter or for worse). Though I think it's inevitable that we will interact and even help each other at some point. I'll just be friends with them and maybe visit the tower from time to time but I'll be doing my hero stuff mostly solo.
+
 # [Fullmetal Alchemist](http://imgur.com/a/fq0qQ)
 
 [Reddit comment](https://www.reddit.com/r/makeyourchoice/comments/4lny4k/fullmetal_alchemist_jumpchain/d90413r)
