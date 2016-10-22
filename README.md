@@ -3,7 +3,7 @@ DarkPotatoKing's Jumpchain Run
 
 I lost my previous Jumpchain progress and I'm too lazy to backtrack my adventures, so I'm gonna start a new jump and put my progress here so it won't get lost
 
-[TODO: Explain Jumpchain rules]
+[What is a jumpchain?](https://www.reddit.com/r/JumpChain/)
 
 I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house supplements. For my next runs, I'll just assume that I have them but I won't deal much with the details
 
