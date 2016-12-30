@@ -12,8 +12,30 @@ I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house
 - [Fullmetal Alchemist](https://github.com/DarkPotatoKing/jumpchain#fullmetal-alchemist)
 - [Teen Titans] (https://github.com/DarkPotatoKing/jumpchain/#teen-titans)
 - [Fairy Tail](https://github.com/DarkPotatoKing/jumpchain/#fairy-tail)
+- [Supernatural](https://github.com/DarkPotatoKing/jumpchain/#supernatural)
 
 (Note: The jump histories below is listed from newest to oldest)
+
+# [Supernatural](http://imgur.com/a/GIYio)
+
+Location: Sioux Falls (rolled)
+
+Origin: Pagan God (600) - I can be a god? Nice.
+
+Apparent age: 26 (rolled)
+
+Unnatural age: 528 (rolled)
+
+Gender: Male
+
+Special abilities:
+- In My Name You Pray (free) - Basic blessing in exchange for offerings, probably won't be able to use this much since I don't plan on amassing followers.
+- Force of Nature (Thunder) (200) - I guess I'll be a Thunder god like Zeus and Thor.
+
+Items:
+- Mjolnir (200) - Keeping up with the Thunder motif. It's also a powerful weapon in its own right, I'll probably do some meta shit enhancement on this in the future jumps.
+
+I guess I'll be spending my time exploring and researching, while doing a few hunter jobs every now and then. I'll try to find or create a Rabbit's Foot and have it merged with my body (I have Envy(FMAB) shapeshiting powers and homonculus body) so I'll never lose it. I'll also be collecting useful items like Angel Blades. I'll also try learn about as many forms of magic in this world as possible. The Men of Letters' records seem interesting as they have a lot of information even some magical stuff. I'll probably also exchange a few souls from my philosopher's stone to make contracts with demons. 
 
 # [Fairy Tail](http://imgur.com/a/3h1uF)
 
