@@ -11,8 +11,30 @@ I've decided that for now I'll skip the Warehouse, Body Mod, and Companion house
 - [Pokemon](https://github.com/DarkPotatoKing/jumpchain#pokemon)
 - [Fullmetal Alchemist](https://github.com/DarkPotatoKing/jumpchain#fullmetal-alchemist)
 - [Teen Titans] (https://github.com/DarkPotatoKing/jumpchain/#teen-titans)
+- [Fairy Tail](https://github.com/DarkPotatoKing/jumpchain/#fairy-tail)
 
 (Note: The jump histories below is listed from newest to oldest)
+
+# [Fairy Tail](http://imgur.com/a/3h1uF)
+
+Age: 16 (rolled)
+
+Gender: Male
+
+Identity: Guild Member (100) - Don't know any of the guilds so I'll just join Fairy Tail.
+
+Location: Magnolia (rolled) - Ok cool I start on where my guild is. :)
+
+Magic:
+- Requip (300, chosen, discounted) - It's a useful utility magic since I'll be collecting a lot of items along my jumps and it's nice to be able to have access to all of my items anytime.
+- Gravity Magic (1000, chosen) - Sounds good, I've searched videos and read the wiki and it seems powerful. I can bind people in place and maybe even crush them down using gravity, I can even defend against attacks by making spells and projectiles fall to the grounnd. The canon user could even use a blackhole ability using this, nice.
+
+Drawbacks:
+- Fanservice (100) - I'm sexy and I know it. I also have Requip so I can manage taking clothes on and off again.
+- Motion Sickness (100) - I'm already fast and I can fly so I won't need to ride on vehicles much.
+- Broken Spirit (200) - I'm more of a logical, calculated person anyway. I'd avoid fights that are too tough for me and would require fighting spirit powerup just to win.
+
+Everything was so expensive so I didn't really have much choice. I guess I'll just stick around with the guild and do whatever they do. Gravity Magic will be my most used and practice ability in this run, particularly for binding enemies in place and crushing them or maybe just keep them in place so I can Starbolt them or do some alchemic attack like Flame Alchemy or something else destructive.
 
 # [Teen Titans](http://imgur.com/a/VHMOb)
 
