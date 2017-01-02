@@ -29,13 +29,22 @@ Unnatural age: 528 (rolled)
 Gender: Male
 
 Special abilities:
-- In My Name You Pray (free) - Basic blessing in exchange for offerings, probably won't be able to use this much since I don't plan on amassing followers.
+- Clairsentience (100) - What kind of god am I if I can't detect supernatural energies?
+- In My Name You Pray (free) - Basic blessing in exchange for offerings, I have a useful application for this as described below.
 - Force of Nature (Thunder) (200) - I guess I'll be a Thunder god like Zeus and Thor.
+- Trickster (200) - I underestimated this skill thinking I could replicate it already using alchemy, but when I watched the episode in Supernatural where they fought a "Trickster" I realized I was wrong. This is basically a powerful illusion spell only the illusions are real. On the upside, I now have a legitimate excuse to indulge in sweets.
+- Immortality (free)
 
 Items:
 - Mjolnir (200) - Keeping up with the Thunder motif. It's also a powerful weapon in its own right, I'll probably do some meta shit enhancement on this in the future jumps.
 
-I guess I'll be spending my time exploring and researching, while doing a few hunter jobs every now and then. I'll try to find or create a Rabbit's Foot and have it merged with my body (I have Envy(FMAB) shapeshiting powers and homonculus body) so I'll never lose it. I'll also be collecting useful items like Angel Blades. I'll also try learn about as many forms of magic in this world as possible. The Men of Letters' records seem interesting as they have a lot of information even some magical stuff. I'll probably also exchange a few souls from my philosopher's stone to make contracts with demons. 
+Drawbacks:
+- Busty Asian Beauties (+100)
+- Demon Blood Addiction (+200)
+
+I guess I'll be spending my time exploring and researching, while doing a few hunter jobs every now and then. I'll try to find or create a Rabbit's Foot and have it merged with my body (I have Envy(FMAB) shapeshiting powers and homonculus body) so I'll never lose it. I'll also be collecting useful items like Angel Blades. I'll also try learn about as many forms of magic in this world as possible. The Men of Letters' records seem interesting as they have a lot of information even some magical stuff. I'll probably also exchange a few souls from my philosopher's stone to make contracts with demons.
+
+I guess my drawbacks also gives me an interesting personality, I'm a trickster god addicted to sugar, demon blood, and voluptous asian women. I'll go to sweets shops like bakeries, chocolate stores, etc. and offer then good bussiness in exchange for worship and tributes in the form of sweets. Demon blood will be obtained through contracts with the demons in exchange for a few philosopher's stone souls. Thankfully I can easily create busty asian beauties at will because of Trickster. ;)
 
 # [Fairy Tail](http://imgur.com/a/3h1uF)
 
